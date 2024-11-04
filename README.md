@@ -7,7 +7,7 @@
 
 <p align="left"> <a href="https://twitter.com/bhanupr16406541" target="blank"><img src="https://img.shields.io/twitter/follow/bhanupr16406541?logo=twitter&style=for-the-badge" alt="bhanupr16406541" /></a> </p>
 
-- 📄 Know about my experiences [https://drive.google.com/drive/home?dmr=1&ec=wgc-drive-hero-goto](https://drive.google.com/drive/home?dmr=1&ec=wgc-drive-hero-goto)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1LFP86Ep0kucvH8deYKjKBmppaMMiKkwa/view]([https://drive.google.com/drive/home?dmr=1&ec=wgc-drive-hero-goto](https://drive.google.com/file/d/1LFP86Ep0kucvH8deYKjKBmppaMMiKkwa/view))
 
 - ⚡ Fun fact **I think I am funny**
 
